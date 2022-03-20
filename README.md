@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ANON-D46KPH4TOM
 - 👀 I’m interested in cyber security
 - 🌱 I’m currently learning hacking, programing
-- 💞️ I’m looking to collaborate on github
+- 💞️ I’m looking to collaborate on youtube, instagram 
 - 📫 How to reach me ...
 
 <!---
